@@ -1,1 +1,1 @@
-# T-ringum-ng
+# Taringumang
